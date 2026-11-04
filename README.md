@@ -1,0 +1,2 @@
+# proqramlasdirma-texnologiyalari
+
